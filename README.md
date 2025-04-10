@@ -1,1 +1,1 @@
-# mental_representation_of_friendship_and_wellbeing
+# mental_representations_of_friendship_and_wellbeing
